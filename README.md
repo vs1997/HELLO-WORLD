@@ -1,2 +1,6 @@
 # HELLO-WORLD
-Just another  repository
+
+Hi humans!
+
+Be a human being alaway.
+fighting attitude gives you win form any situation.
